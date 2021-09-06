@@ -1,1 +1,1 @@
-https://Tatibeyhan.github.io/rsschool-cv/cv
+https://tatibeyhan.github.io/rsschool-cv/cv
